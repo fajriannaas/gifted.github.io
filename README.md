@@ -1,2 +1,2 @@
-# kado
+# kado ultah buat lu
 -
